@@ -2,6 +2,24 @@
 
 https://nativegames.netlify.app
 
+https://wade7wastaken.github.io/TrulyUnblockedGames/
+
+https://teddblue.github.io/gamebois/
+
+https://peeloffyour.skin/
+
+https://he1l.netlify.app/
+
+https://shadowgmes-pi.vercel.app/
+
+https://shadowgmes-akb0n57ca-shadowsgmes.vercel.app/
+
+https://shadowgmes-l964mkvz6-shadowsgmes.vercel.app/
+
+https://wip-main.github.io/
+
+https://testaccount335.github.io/Unblocked-Fun-School-Games/
+
 https://coolgames.vercel.app
 
 https://coolgames1.vercel.app
