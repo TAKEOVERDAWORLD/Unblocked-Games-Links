@@ -4,6 +4,12 @@ https://nativegames.netlify.app
 
 https://wade7wastaken.github.io/TrulyUnblockedGames/
 
+https://thegamecenter.github.io/
+
+https://mackeylol.github.io/copyofmasite/
+
+https://copyofmasite.vercel.app/
+
 https://teddblue.github.io/gamebois/
 
 https://peeloffyour.skin/
