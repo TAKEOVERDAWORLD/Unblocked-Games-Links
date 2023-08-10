@@ -2,6 +2,8 @@
 
 https://nativegames.netlify.app
 
+https://outred.fun/
+
 https://wade7wastaken.github.io/TrulyUnblockedGames/
 
 https://thegamecenter.github.io/
