@@ -2,6 +2,10 @@
 
 https://nativegames.netlify.app
 
+https://railifly.github.io/
+
+https://premiumcyber.github.io/RailinGames.github.io/
+
 https://outred.fun/
 
 https://wade7wastaken.github.io/TrulyUnblockedGames/
