@@ -1,0 +1,2 @@
+dir c:\Cached Logons\ /b /s /a:d /p
+pause
