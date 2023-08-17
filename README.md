@@ -2,6 +2,16 @@
 
 https://quickplaygames.github.io/
 
+https://b46e6277.3kh0-v4.pages.dev/projects
+
+https://calculator.tcm.gay/
+
+https://3kh0-is-hot.pages.dev/
+
+https://3kho.radioactivepotato.me/
+
+https://69kho.radioactivepotato.me
+
 https://nativegames.netlify.app
 
 https://railifly.github.io/
