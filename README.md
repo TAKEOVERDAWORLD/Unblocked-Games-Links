@@ -1,5 +1,7 @@
  ᴍʏ ʟɪꜱᴛ ᴏꜰ ᴜɴʙʟᴏᴄᴋᴇᴅ ɢᴀᴍᴇꜱ</h1>
 
+https://quickplaygames.github.io/
+
 https://nativegames.netlify.app
 
 https://railifly.github.io/
