@@ -2,6 +2,8 @@
 
 https://quickplaygames.github.io/
 
+https://strongdog.com/
+
 https://b46e6277.3kh0-v4.pages.dev/projects
 
 https://calculator.tcm.gay/
