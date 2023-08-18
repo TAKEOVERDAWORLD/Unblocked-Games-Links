@@ -1,4 +1,4 @@
- ᴍʏ ʟɪꜱᴛ ᴏꜰ ᴜɴʙʟᴏᴄᴋᴇᴅ ɢᴀᴍᴇꜱ</h1> Might Delete See info [Here](https://github.com/Deus-Scissuras/Im-gonna-quit-soon)
+ Might Delete This Repo See info [Here](https://github.com/Deus-Scissuras/Im-gonna-quit-soon)
 
 https://quickplaygames.github.io/
 
