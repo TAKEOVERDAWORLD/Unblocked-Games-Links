@@ -1,4 +1,4 @@
-</h1>Might Delete This Repo See info [Here](https://github.com/Deus-Scissuras/Im-gonna-quit-soon)</h1>
+</h1>Might Delete This Repo See info [Here](https://github.com/Deus-Scissuras/Im-gonna-quit-soon)
 
 https://quickplaygames.github.io/
 
