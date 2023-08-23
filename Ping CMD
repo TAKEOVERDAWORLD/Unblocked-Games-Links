@@ -1,1 +1,1 @@
-Ping <target> -l xx
+ping IP -t -l 65500
