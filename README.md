@@ -3,6 +3,12 @@
 
 https://quickplaygames.github.io/
 
+https://lxpa.onrender.com/
+
+https://classes.spanishlearning.com.ar/
+
+https://lxpa.onrender.com/
+
 https://rnv4.pages.dev/
 
 https://strongdog.com/
