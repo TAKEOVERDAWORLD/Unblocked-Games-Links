@@ -4,6 +4,8 @@
 
 https://quickplaygames.github.io/
 
+https://yplaz.onrender.com/
+
 https://lxpa.onrender.com/
 
 https://classes.spanishlearning.com.ar/
