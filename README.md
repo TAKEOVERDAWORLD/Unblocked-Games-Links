@@ -4,6 +4,10 @@
 
 https://quickplaygames.github.io/
 
+https://gaming-xhub-kjpztcw8i-cosmiccreatorofficial.vercel.app/
+
+https://gaming-xhub.vercel.app/
+
 https://yplaz.onrender.com/
 
 https://lxpa.onrender.com/
