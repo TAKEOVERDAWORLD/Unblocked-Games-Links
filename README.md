@@ -2,6 +2,8 @@
 ## Want the Best Games ALL in a read.me go [here](https://github.com/Deus-Scissuras/One-Game-Sites)
 ## Want More Links Go [here](https://github.com/Unblocked-Games-Deployment/Admissions-Unblocked-Games)
 
+https://v4-4f81u3sgp-artclass.vercel.app/
+
 https://quickplaygames.github.io/
 
 https://v4-j4akdzo9w-artclass.vercel.app/
