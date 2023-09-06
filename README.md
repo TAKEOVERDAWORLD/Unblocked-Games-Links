@@ -4,6 +4,8 @@
 
 https://quickplaygames.github.io/
 
+https://v4-j4akdzo9w-artclass.vercel.app/
+
 https://gaming-xhub-kjpztcw8i-cosmiccreatorofficial.vercel.app/
 
 https://gaming-xhub.vercel.app/
