@@ -4,6 +4,12 @@
 
 https://v4-4f81u3sgp-artclass.vercel.app/
 
+https://github.com/TomMalbran/games
+
+https://pirate-proxy.mov/
+
+https://tpb.re/
+
 https://quickplaygames.github.io/
 
 https://v4-j4akdzo9w-artclass.vercel.app/
