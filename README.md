@@ -4,6 +4,8 @@
 
 https://v4-4f81u3sgp-artclass.vercel.app/
 
+https://purepro4561.github.io/ (Duped)
+
 https://nate-games.github.io/0/g/
 
 https://github.com/TomMalbran/games
