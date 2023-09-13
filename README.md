@@ -2,6 +2,8 @@
 ## Want the Best Games ALL in a read.me go [here](https://github.com/Deus-Scissuras/One-Game-Sites)
 ## Want More Links Go [here](https://github.com/Unblocked-Games-Deployment/Admissions-Unblocked-Games)
 
+100 stars = Face
+
 https://v4-4f81u3sgp-artclass.vercel.app/
 
 https://deus-scissuras.github.io/CoolMathGames/
